@@ -1,0 +1,2 @@
+# Finwizz.in
+Finwizz
